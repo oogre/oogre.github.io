@@ -210,12 +210,12 @@ Le prélude de Pentura est une réduction du voile de dentelle couvrant le sexe 
 
 - [**Share session**](https://www.youtube.com/watch?v=8iPEDR52YAY) Mon tout premier rapport à la scène s’est déroulé en 2008 dans une Jam AudioVisuel nommée share session au centre d’art multimédia iMAL à Bruxelles. Depuis 2021, je re-fais vivre ce projet régulièrement en invitant musiciens électronique, acoustique et créateur d’images live à jammer ensemble. La première édition a pris place dans un atelier d’artistes à Liège, suivie de la seconde au Souplex également à Liège et de la troisième au cinéma project(ion)Room à Bruxelles. D’autres bientôt… [ SHARE@SOUPLEX//JAM AUDIOVISUEL PART05 ](https://www.youtube.com/watch?v=ZL_UbaIn8kY&ab_channel=LESOUPLEX)
 
-###Créations Vidéo
+### Créations Vidéo
 - 2017 · **Cul Ture** · est une chaîne youtube proposant des mixes de films documentaires avec des films pornographiques. Raison pour laquelle je suis banni de youtube depuis 4 ans ;-)
 - 2016 · **Piano Projeté** · est une performance AV mettant en scène cinéma muet et live cinema. Elle met en jeu un pianiste improvisateur, un performer vidéo et un film. Elle est réalisée en collaboration avec le musicien François Chamaraux(Be) et à débuté en collaboration avec l’artiste Martin Pirson (Be). 
 - 2015 · [**Le Prince Harry - Chemistry**](https://www.youtube.com/watch?v=l1-PBoj-aKU) · Clip vidéo réalisé avec Osica pour le groupe Le prince Harry.
 
-###Résidences de recherche et de création
+### Résidences de recherche et de création
 - 2025 · La Montagne Liquide · **Les Grignoux (Be)**
 - 2024 · La Montagne Liquide · **Espace 251 Nord (Be)**
 - 2023 · [La Montagne Liquide](https://www.youtube.com/watch?v=QVqfHe_olJg) · **Les Brasseurs (Be)**
@@ -226,7 +226,7 @@ Le prélude de Pentura est une réduction du voile de dentelle couvrant le sexe 
 - 2015 · En collaboration avec Alice Jarry : [Lighthouses](https://www.chambreblanche.qc.ca/fr/chambreblanche/programmation/31175/lighthouses) · **La chambre Blanche (Qc)**
 - 2015 · En collaboration avec Alice Jarry : Lighthouses · **Transculture (Be)**
 
-###Conférences / Interviews
+### Conférences / Interviews
 - Interview · Matière Humaine · Le Soir Press Nationale (Be)
 - Interview · La Montagne Liquide · RTC Télévision régional Liégeoise(Be)
 - Interview · La Montagne Liquide · RCF Radio Nationale (Be)
@@ -237,12 +237,12 @@ Le prélude de Pentura est une réduction du voile de dentelle couvrant le sexe 
 - Interview avec Alice Jarry · Lighthouses · Radio Grenouille · Marseille
 - Interview avec Alice Jarry · Lighthouses · [Vice Versa Résidences 2015](https://www.youtube.com/watch?v=arOcvq9tdag&feature=youtu.be) · Mons
 
-###Parutions
+### Parutions
 - Lighthouses · Éditions d'art Le Sabord - n°109
 - Lighthouses · Facettes - Revue Annuelle & Gratuite d’art Contemporain - n°2
 - [Aphrogenea](https://we-make-money-not-art.com/aphrogenea/) · We make money not art
 
-###Live
+### Live
 - 2023 · Osica · Gifgrond · Tilburg (Nl)
 - 2023 · Perpetuité I · FIBER Festival · Amsterdam (Nl)
 - 2023 · Perpetuité II · MÁQUINA ORGÁNICA · Madrid (Es)
